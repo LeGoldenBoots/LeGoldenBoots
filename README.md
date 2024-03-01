@@ -1,1 +1,3 @@
-Hello. I'm LeGoldenBoots. Former Baldi's Basics Modder. Working on a FNF mod. If you have something that you would like to be put in, My discord is: LeGoldenBoots#0608
+yo, i'm legoldenboots.
+
+i do roblox stuff now, dont expect me to use this site often
